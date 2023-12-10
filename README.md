@@ -1,3 +1,2 @@
 # FNAF2
-yall some sorry ass motherfuckers here ya go make the github pages urself
-https://github.com/sussygamedeveloper/FNAF2-NOHACKS
+Hi, this is a fnaf 2 with hacks(radar map with hacks)!
